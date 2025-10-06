@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://i.pinimg.com/736x/9d/cd/09/9dcd096f3698af3ba824dd8eefb2c7d5.jpg">
+<img src="https://media.discordapp.net/attachments/1256471490690420828/1424610827712991354/cdbcf0f7382fe0436292abe7f0af6874-removebg-preview.png?ex=68e493b9&is=68e34239&hm=1affaeb23199c6a883eb1ded1f1f0a443aef6a111b8c7e295e1ff49c40357ee0&=&format=webp&quality=lossless">
 </div>
 
 # ⤷ ゛ Hi! My name is Ana Júlia.  ˎˊ˗
@@ -16,9 +16,15 @@
 >feel free to talk to me and discuss anything related to programming!
 
 ## ꒰ social media ꒱
+
 - [ʚ Steam ɞ ][https://steamcommunity.com/id/miurizy/]
 
 - [ʚ Spotify ɞ ](https://open.spotify.com/user/31fqiwb5r577kxt2xgufnzdt7jz4?si=b2eccdbb15bc4189)
+
+<img src="https://static.myfigurecollection.net/upload/pictures/2024/01/01/3856264.png">
+</div>
+
+
 
 
 
