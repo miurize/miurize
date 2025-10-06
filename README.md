@@ -18,6 +18,7 @@
 ## ꒰ social media ꒱
 - [ʚ Steam ɞ ][https://steamcommunity.com/id/miurizy/]
 
+- [ʚ Spotify ɞ ](https://open.spotify.com/user/31fqiwb5r577kxt2xgufnzdt7jz4?si=b2eccdbb15bc4189)
 
 
 
