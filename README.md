@@ -12,7 +12,7 @@
 >feel free to talk to me and discuss anything related to programming!
 
 ## ꒰ social media ꒱
-- [ Steam  ][https://steamcommunity.com/id/miurizy/]
+- [ʚ Steam ɞ ][https://steamcommunity.com/id/miurizy/]
 
 
 
