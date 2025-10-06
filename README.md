@@ -1,3 +1,7 @@
+<div align="center">
+<img src="https://i.pinimg.com/736x/9d/cd/09/9dcd096f3698af3ba824dd8eefb2c7d5.jpg">
+</div>
+
 # ⤷ ゛ Hi! My name is Ana Júlia.  ˎˊ˗
 - I'm a Computer Science student, currently studying to become a programmer!
 
@@ -13,6 +17,8 @@
 
 ## ꒰ social media ꒱
 - [ʚ Steam ɞ ][https://steamcommunity.com/id/miurizy/]
+
+
 
 
 
